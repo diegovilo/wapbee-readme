@@ -1,4 +1,4 @@
-## 🎉 ¡Bienvenido a **wapbee **! 🎉 
+## 🎉 ¡Bienvenido a **wapbee **! 
 
 ¡Gracias por confiar en **wapbee** para organizar tu comunicación!  
 Estás utilizando la plataforma mas elegida en LATAM de nuestra plataforma. 🎯
